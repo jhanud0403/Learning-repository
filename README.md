@@ -1,3 +1,3 @@
 # Learning-repository
 
-Author - Jhanvi
+Author - Jhanvi reddy
